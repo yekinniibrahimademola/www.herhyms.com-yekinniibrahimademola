@@ -1,8 +1,9 @@
-www.herhyms.com-yekinniibrahimademola
+Yekinni Ibrahim Ademola 
 He rhyms. 
-He rhyms music accademy
-Amazing
-Yib-Ajayi Gallery Artistry and Business Auditory. 
+Connect wallet 
+He Rhyms music accademy. 
+Yib-Ajayi Gallery Artistry and Business Auditory +2348028631039 
+Training. 
 Game Quarters. 
 Thursday bingo. 
 Goods. 
@@ -48,3 +49,12 @@ Electronically.
 Needs. 
 Valuable. 
 Stop. 
+Yekinni Ibrahim Ademola Imobido. 
+History now. 
+A-Z Alphabets. 
+Display menu. 
+CEO. 
+Yekinni Ibrahim Ademola He Rhyms. 
+Imolication dot legacy. 
+Pilling ur hearth. 
+Fixing location tag. 
