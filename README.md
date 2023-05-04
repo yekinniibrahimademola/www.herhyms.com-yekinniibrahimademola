@@ -55,6 +55,6 @@ A-Z Alphabets.
 Display menu. 
 CEO. 
 Yekinni Ibrahim Ademola He Rhyms. 
-Imolication dot legacy. 
+Implication dot legacy. 
 Pilling ur hearth. 
 Fixing location tag. 
