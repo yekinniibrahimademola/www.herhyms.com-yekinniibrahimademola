@@ -58,3 +58,6 @@ Yekinni Ibrahim Ademola He Rhyms.
 Implication dot legacy. 
 Pilling ur hearth. 
 Fixing location tag. 
+Gulf of Guinea 
+Ghost rapper 
+Fresh beets 
