@@ -1,5 +1,5 @@
 Yekinni Ibrahim Ademola 
-He rhyms. 
+He Rhyms. 
 Connect wallet 
 He Rhyms music accademy. 
 Yib-Ajayi Gallery Artistry and Business Auditory +2348028631039 
@@ -62,3 +62,7 @@ Gulf of Guinea
 Ghost rapper 
 Fresh beets 
 Happy mother's day 
+Tuesday
+Wednesday
+Thursday
+Yekinni Ibrahim Ademola Aka He Rhyms Victory Song
