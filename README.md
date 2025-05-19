@@ -66,3 +66,9 @@ Tuesday
 Wednesday
 Thursday
 Yekinni Ibrahim Ademola Aka He Rhyms Victory Song
+your story.
+Pope Francis.
+fairwel Pope Francis.
+Ibrahim done. 
+Ibrahim no network.
+Tinubu.
